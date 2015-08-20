@@ -3,4 +3,4 @@
 5. Le Thi Thuy Trang -- de thuong
 7. F*ck Day 
 8. Dao Tran Cong Anh
-9. Thim nao F*ck do?
+9. polite
