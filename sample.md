@@ -5,4 +5,5 @@
 5. Le Thi Thuy Trang -- Ugly
 6. Kim Karshadian
 7. Songoku
+8. Songohan
 
